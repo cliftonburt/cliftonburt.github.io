@@ -17,3 +17,14 @@ xxxxx0
 x0x0xx
 
 
+
+you ever get so bored at work you start doing your job right
+https://twitter.com/jaredisnumb/status/1509190007432511491?s=20&t=NAWkCln8E5CDBckyhIL-Qg
+
+
+Waitress said “wow” after I ordered
+https://twitter.com/KaufmanAudrey/status/1490101140251312128?s=20&t=NAWkCln8E5CDBckyhIL-Qg
+
+
+
+
